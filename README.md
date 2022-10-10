@@ -1,0 +1,1 @@
+# sistem_cerdasyyoi1
